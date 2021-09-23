@@ -19,3 +19,8 @@
 同时小说采用了实验性的意识流写法，现实时间仅在Alex下床穿鞋、上床拖鞋的几个句子里有体现，他躺在床上吞云吐雾的思潮才是小说的主题内容。在迷幻药物和迷茫内心的双重作用下，Alex的思维不断变换，回忆和幻觉相互交织，比如他回忆和Adrian做爱的经历时又进入了梦境，在一片罂粟花海中先后遇到了Adrian和Melva的肉体。
 
 小说中最显眼的就是省略号的大量使用。Alex思维在跳跃时作者用了非传统的省略号进行分隔，许多句子和思绪也不完整，在一个省略号之后就跳到了另一段思维，就好像主人公Alex在刻意用省略来隐藏自己内心的感受，然而省略号之下蕴藏的情绪和渴望却在一个个‘…’中不断涌动。省略号就如同Alex对现实的逃避和回避，把自己麻痹在烟雾之中，但他对Adrian的禁忌情感无论他如何试图压抑都会不断浮出他的脑海。性少数群体的微妙心理就在大量的省略号里传达出来。
+
+## 选段：
+‘lips [that] were so beautiful. . . quizzical . . . Alex wondered why he always thought of that passage from Wilde’s Salome . . . when he looked at Beauty’s lips . . .  I would like to kiss your lips . . . he wouldlike to kiss Beauty’s lips […] Alex lay smoking . . . such a dream . . . red calla lilies . . . red calla lilies . . . and . . .  what did it all mean . . . did dreams have meanings . . . Fania said . . . and black poppies . . . thousands . . . millions . . . Beauty stirred. . .’
+
+
